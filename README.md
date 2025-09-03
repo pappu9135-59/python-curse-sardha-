@@ -1,2 +1,0 @@
-# python-curse-sardha-efedf
-
